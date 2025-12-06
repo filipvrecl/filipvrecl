@@ -1,6 +1,6 @@
 # Filip Vrecl
 
-⭐ Analytics Engineer / Data analyst
+⭐ Quantative Data analyst
 
 🏞️ From Slovenia
 
